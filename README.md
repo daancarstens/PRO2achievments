@@ -5,9 +5,9 @@
 ### Mijn favorite game's zijn
  
 * [Overwatch](https://playoverwatch.com/en-us/)
-* Minecraft 
-* Monster HUnter World
-* Stonehearth
+* [Minecraft](https://www.minecraft.net/nl-nl/) 
+* [Monster Hunter World](https://www.monsterhunterworld.com/)
+* [Stonehearth](https://www.stonehearth.net/)
 
 
 
