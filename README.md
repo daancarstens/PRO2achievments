@@ -12,6 +12,10 @@
 * [Monster Hunter World](https://www.monsterhunterworld.com/)
 * [Stonehearth](https://www.stonehearth.net/)
 
+#### ik heb deze opleiding gekozen omdat
+1. Ik wou graag met computers werken
+2. Ik wou ook graag spellen programmeren
+
 
 
 
